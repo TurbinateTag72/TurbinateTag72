@@ -1,5 +1,6 @@
-## Hi there 👋
-
+## Hej! Vänlig femboy här
+- Professional SU enjoyer and manga reader.
+- Uni student learning Python, R, and various typesetting languages; interested in JS
 <!--
 **TurbinateTag72/TurbinateTag72** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
